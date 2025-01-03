@@ -1,1 +1,2 @@
-# -Innovaci-n-en-un-lienzo-seguro
+# -Innovación-en-un-lienzo-seguro
+El sandbox regulatorio es un lienzo donde la innovación y la seguridad financiera se encuentran. Este entorno controlado permite a las startups crear y probar soluciones únicas bajo supervisión regulatoria. Con tecnologías como blockchain y finanzas descentralizadas, las empresas pueden ajustar sus productos a normativas, minimizando riesgos. Es una obra de arte en equilibrio entre creatividad y protección al consumidor.
